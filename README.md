@@ -25,7 +25,7 @@ Here are some of the key projects I've worked on:
 ## 📫 How to Reach Me
 
 - Email: [vishalkumarvk2219@gmail.com](mailto:vishalkumarvk2219@gmail.com)
-- LinkedIn: [My_Linkdin](https://www.linkedin.com/in/vishal-kumar-2821a2201)
+- LinkedIn: [VishalKumar](https://www.linkedin.com/in/vishal-kumar-2821a2201)
 
 ## 💬 Let's Collaborate!
 
